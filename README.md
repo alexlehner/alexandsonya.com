@@ -17,8 +17,8 @@ Room block information will be coming soon. Please don't feel like you have to w
 ## Registry
 We are excited you would like to be a part of our day. Mostly we just want to see your smiling faces. If you'd like, we are registered at:
 - [Amazon](https://www.amazon.com/wedding/share/alexandsonya.com "Alex & Sonya Amazon Wedding Registry")
-- [Crate & Barrel](https://www.crateandbarrel.com/gift-registry/alex-lehner-and-sonya-myers/r5838929. "Alex & Sonya Crate & Barrel Registry")
-- [Zola](https://www.zola.com/registry/myerslehner. "Alex & Sonya Zola Wedding Registry")
+- [Crate & Barrel](https://www.crateandbarrel.com/gift-registry/alex-lehner-and-sonya-myers/r5838929 "Alex & Sonya Crate & Barrel Registry")
+- [Zola](https://www.zola.com/registry/myerslehner "Alex & Sonya Zola Wedding Registry")
 
 Alternatively, we'd love to see these non-profit organizations supported:
 - [WABE](https://www.wabe.org/support-the-station/), our local NPR station
