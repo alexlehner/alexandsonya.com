@@ -13,10 +13,10 @@ Atlanta, GA 30307](https://goo.gl/maps/EKn6gZS6oqN2)
 
 ## Accomodations
 
-We have secured a block of rooms for our wedding weekend at [The 
+We have two room blocks available for the wedding weekend at [The 
 Renaissance Atlanta Midtown Hotel](http://renaissance-hotels.marriott.com/renaissance-atlanta-midtown-hotel) and [The Ellis Hotel](http://www.ellishotel.com/). 
 
-Should you have any issues with reservations at any hotel, please reach out to Tess at TOAST Events. [Tess@toast-events.com](mailto:tess@toast-events.com)
+Should you have any issues with reservations at either hotel, please reach out to Tess at TOAST Events. [Tess@toast-events.com](mailto:tess@toast-events.com)
 
 ### Renaissance Atlanta Midtown Hotel
 [866 W. Peachtree Street, NW, Atlanta, GA  30308](https://goo.gl/maps/yC2E6VefBJN2)<br>
