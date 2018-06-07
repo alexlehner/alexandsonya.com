@@ -12,7 +12,38 @@ The event will be held in the charming [Trolley Barn](http://www.thetrolleybarn.
 Atlanta, GA 30307](https://goo.gl/maps/EKn6gZS6oqN2)
 
 ## Accomodations
-Room block information will be coming soon. Please don't feel like you have to wait for the block. We'll just be glad to have you close by.
+
+We have two room blocks available for the wedding weekend at [The 
+Renaissance Atlanta Midtown Hotel](http://renaissance-hotels.marriott.com/renaissance-atlanta-midtown-hotel) and [The Ellis Hotel](http://www.ellishotel.com/). 
+
+Should you have any issues with reservations at either hotel, please reach out to Tess at TOAST Events. [Tess@toast-events.com](mailto:tess@toast-events.com)
+
+### Renaissance Atlanta Midtown Hotel
+[866 W. Peachtree Street, NW, Atlanta, GA  30308](https://goo.gl/maps/yC2E6VefBJN2)<br>
+_~15 minute drive from wedding venue_
+
+| Room            | Price                     |
+|-----------------| -------------------------:|
+| Standard King   | $149.00 <sup>/night</sup> |
+| Standard Double | $159.00 <sup>/night</sup> |
+
+Reservations can be [made online](www.marriott.com/meeting-event-hotels/group-corporate-travel/groupCorp.mi?resLinkData=Myers-Lehner%20Wedding%5Eatlbd%60mlwmlwa%7Cmlwmlwb%60149.00-159.00%60USD%60false%604%609/7/18%609/9/18%608/10/18&app=resvlink&stop_mobi=yes), or by calling the Marriott Reservations directly at 1 (800) 468-3571 and mentioning the Myers-Lehner Wedding.
+
+Discounted Overnight Valet Parking Rate of $25 <sup>/car</sup> (reg. $32 <sup>/car</sup>)
+
+The hotel cutoff date is August 18th, so kindly make your reservations before that date.  
+
+### The Ellis Hotel
+[176 Peachtree Street NW Atlanta 30303](https://goo.gl/maps/ix8gLn5ZNx72)<br>
+_~11 minute drive from wedding venue_
+
+| Room        | Price                     |
+|-------------| -------------------------:|
+| Deluxe Room | $129.00 <sup>/night</sup> |
+
+Reservations can be [made online](www.ellishotel.com/), or by calling The Ellis Hotel Reservations at (407) 536-2724. Please use the rate code WEDDING when booking online or over the phone.
+
+The Ellis rooms are subject to availability, so we encourage folks to book early.
 
 ## Registry
 We are excited you would like to be a part of our day. Mostly we just want to see your smiling faces. If you'd like, we are registered at:
