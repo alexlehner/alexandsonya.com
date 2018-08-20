@@ -29,7 +29,7 @@ _~15 minute drive from wedding venue_
 
 Discounted Overnight Valet Parking Rate of $25 <sup>/car</sup> (reg. $32 <sup>/car</sup>)
 
-Reservations can be [made online](www.marriott.com/meeting-event-hotels/group-corporate-travel/groupCorp.mi?resLinkData=Myers-Lehner%20Wedding%5Eatlbd%60mlwmlwa%7Cmlwmlwb%60149.00-159.00%60USD%60false%604%609/7/18%609/9/18%608/10/18&app=resvlink&stop_mobi=yes), or by calling Marriott Reservations directly at 1 (800) 468-3571 and mentioning the Myers-Lehner Wedding.
+Reservations can be [made online](http://www.marriott.com/meeting-event-hotels/group-corporate-travel/groupCorp.mi?resLinkData=Myers-Lehner%20Wedding%5Eatlbd%60mlwmlwa%7Cmlwmlwb%60149.00-159.00%60USD%60false%604%609/7/18%609/9/18%608/10/18&app=resvlink&stop_mobi=yes), or by calling Marriott Reservations directly at 1 (800) 468-3571 and mentioning the Myers-Lehner Wedding.
 
 The hotel cutoff date is August 18th, so please make your reservations before that date.  
 
@@ -41,7 +41,7 @@ _~11 minute drive from wedding venue_
 |-------------| -------------------------:|
 | Deluxe Room | $129.00 <sup>/night</sup> |
 
-Reservations can be [made online](www.ellishotel.com/), or by calling Ellis Hotel Reservations at (407) 536-2724. Please use the rate code <strong>WEDDING</strong> when booking online or over the phone. 📱
+Reservations can be [made online](http://www.ellishotel.com/), or by calling Ellis Hotel Reservations at (407) 536-2724. Please use the rate code <strong>WEDDING</strong> when booking online or over the phone. 📱
 
 The Ellis rooms are subject to availability, so we encourage you to book early.
 
